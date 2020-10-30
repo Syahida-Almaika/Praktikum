@@ -34,5 +34,23 @@ Wenn ja, dann "Ist das, was ich gemacht habe ausreichend gewesen?"
 Wenn ja, dann muss man trotzdem dem Schicksal ins Auge sehen, und es respektieren, und nächstes mal mher Mühe geben.
 
 Dann hatten wir unsere Konferenz um 10: 30 Uhr.
-Alle 60 Mitarbeiter nehmen darin teil.
+Alle 60 Mitarbeiter nahmen darin teil.
+Sie besprachen wichtige Sachen, wie das Gestalten der Micromata im Innenbereich.
+Auch über die neuen Mitarbeiter haben sie geredet und noch ein paar Organisatorische Sachen, wie neue Aufgaben und projekte.
+Sie sprachen aber auch über einige Veranstaltungen, Geschichten aus Frankreich, und sie haben sich auch Videos angeguckt.
 
+Danach, als sie fertig waren, konnte ich weiter arbeiten an meinem ARDUIO-PROJEKT.
+ich schrieb noch die restlichen Seiten vom kapitel über das programm zu Ende.
+Direkt danach nahm mich Herr Ngo mit zu einem Meeting.
+Beim Meeting aßen wir dann auch indisches Essen.
+
+Nach dem Meeting habe ich bei beim ARDUINO-PROJEKTBUCH noch die erklärung für die Farben der Widerstände aufgeschrieben.
+
+Nachdem ich die Farben alle erklärt habe, kam Frau Weber und Herr Tippel über den Laptop (Home-Office), und wir sprachen über das Praktikum.
+Herr Ngo hat mir den von ihm ausgefüllten Selbsteinschätzungsbogen gegeben.
+Und dann haben wir eine Feedbakc-Runde gemacht.
+Sie alle haben mir Rückmeldungen gegeben, wie ich war, und wie ich mich verbessern konnte.
+
+Dann habe sie mir Fragen gestellt, wir das Pratikum war, was ich gelernt habe, toll fand und auch, wie ich das Praktikum insgesamt bewerten würde.
+
+Danach hat Frau Weber darauf einen Stempel gemacht, und ich durfte nach Hause.
