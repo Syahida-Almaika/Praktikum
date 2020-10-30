@@ -1,2 +1,2 @@
 # Praktikum
-![Ziele](ziele.png)
+![Ziele](PraktikumSyahidaZiele.svg)
